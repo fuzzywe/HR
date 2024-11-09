@@ -8,6 +8,7 @@ but also someone who can take the initiative to drive new ideas and solutions th
 
 ability to convince, stress management skills. my ability to quickly adapt to new technologies . I Carry a positive attitude with me.
 
+VIT LIKE AND DISLIKES?
 
 VIT is a land of opportunity. You will get an opportunity to excel in any field you like. Let me give you an example,
 
